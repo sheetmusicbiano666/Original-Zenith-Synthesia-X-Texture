@@ -1,1 +1,0 @@
-# Original-Zenith-Synthesia-X-Texture
